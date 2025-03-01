@@ -34,7 +34,7 @@ If you're a motorcycle enthusiast who values both **performance and aesthetics**
 
 Using the **"SKV10"** discount code is simple. Follow these steps to **get 20% off** your order:  
 
-1. **Visit the Amotopart Website** – Go to [Amotopart.com](https://www.amotopart.com/) and browse the extensive catalog of motorcycle parts.  
+1. **Visit the Amotopart Website** – Go to [Amotopart.com](https://amotopart.com/SKV10)) and browse the extensive catalog of motorcycle parts.  
 2. **Select Your Products** – Add your preferred **fairing kits, bolt kits, or accessories** to the cart.  
 3. **Proceed to Checkout** – Click on the cart icon and review your order.  
 4. **Enter Discount Code** – In the promo code box, type **"SKV10"** and apply it.  
@@ -131,4 +131,4 @@ Motorcycle upgrades don’t have to be **expensive**. With **Amotopart**, you ge
 
 And now, with the **"SKV10"** discount code, you can save an **extra 20%** on your purchase!  
 
-🚀 **Don’t miss out!** Visit **[Amotopart.com](https://www.amotopart.com/)** today and **upgrade your ride** with the **best motorcycle accessories at unbeatable prices!**  
+🚀 **Don’t miss out!** Visit **[Amotopart.com](https://amotopart.com/SKV10))** today and **upgrade your ride** with the **best motorcycle accessories at unbeatable prices!**  
